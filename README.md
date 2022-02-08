@@ -1,4 +1,4 @@
 # blockchainkyc_projectweb
 
 
-https://click.pstmrk.it/2sm/www.hackerrank.com%2Ftests%2F5cjnq2jtn6p%2Flogin%3Fb%3DeyJ1c2VybmFtZSI6ImhlbWFsYWxsaUBnbWFpbC5jb20iLCJwYXNzd29yZCI6IjFhZjY4NTVhIiwiaGlkZSI6dHJ1ZSwiYWNjb21tb2RhdGlvbnMiOnsiYWRkaXRpb25hbF90aW1lX3BlcmNlbnQiOjB9fQ%3D%3D/BtaJASYN/EDcI/t6_w6paMm9/aHJ3LXRlc3QtaW52aXRl
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_NjI2YWIxNWMtM2UwNy00OGE5LWI2NmItZGUyNGMwZGU3N2Ix%40thread.v2/0?context=%7b%22Tid%22%3a%22945c199a-83a2-4e80-9f8c-5a91be5752dd%22%2c%22Oid%22%3a%2238292bf9-ab03-4bf4-82e4-1bfbb0f878d6%22%7d
